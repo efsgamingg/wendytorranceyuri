@@ -6,3 +6,6 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀
 <p align="center"> <img width="250" height="250" alt="efs-efsgaming" src="https://github.com/user-attachments/assets/e18c9738-90a9-4865-a719-02d6408d9a6f" />
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=efsgamingg&label=hai&style=plastic&color=yellow) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
